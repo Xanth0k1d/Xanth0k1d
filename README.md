@@ -1,2 +1,2 @@
 - Hi, I’m @Xanth0k1d
-- I’m interested in Android ROMs n App dev. Reach me via Telegram https://t.me/Lawrence2018 .
+
